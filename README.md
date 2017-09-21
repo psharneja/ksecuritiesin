@@ -1,1 +1,1 @@
-# [ksecuritiesin](https://ksecurities.in)
+# [ksecuritiesin](http://ksecurities.in)
